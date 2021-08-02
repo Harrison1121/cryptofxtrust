@@ -1,2 +1,0 @@
-# cryptofxtrust
-Investment
